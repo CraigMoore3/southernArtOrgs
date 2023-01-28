@@ -14,6 +14,9 @@
 
 * Meadows Museeum at SMU - 
 
+nasher sculpture, rainbow vomit
+crow collection
+
 ## Austin
 
 ## Fort Worth
