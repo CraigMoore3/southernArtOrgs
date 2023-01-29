@@ -1,10 +1,21 @@
 # Southern Art Organizations - Texas
 
+[https://glasstire.com/]
+
+* Gavelston Artist Residency Open Call
+
 ## Houston
 
-MoFA Houston (Nancy Rich Kinder Building), Contemporary Arts Museum Houston, The Menil Collection (Dan Flavin, Cy Twombly, Byzantine Fresco), Houston Center for Contemporary Craft, Rienzi MoFA Houston, Seismique, Blaffer Art Museu, Lawndale Art Center, Rothko Chapel, Color Factory, Pearl Fincher MoFA, McClain Gallery
+MoFA Houston (Nancy Rich Kinder Building), Contemporary Arts Museum Houston, The Menil Collection (Dan Flavin, Cy Twombly, Byzantine Fresco), Houston Center for Contemporary Craft, Rienzi MoFA Houston, Seismique, Blaffer Art Museu, Lawndale Art Center, Rothko Chapel, Color Factory, Pearl Fincher MoFA, McClain Gallery, Station Museuem of Contemporary Art, Deborah Colton Gallery, Glade Cultural Center Gallery
+
+* The Menil Collection - non profit
+  (713) 525 9435  info@menil.org
 
 ## San Antonio
+
+* The Contemporary at Blue Star
+
+Artpace San Antonio, Bismark Studios Contemporary, Ruby City, Sala Diaz, AnArte Gallery, High Wire Arts, Gravelmouth, San Antonio Art League, Ruiz-Healy Art, Briscoe Western Art Museum, Semmes Gallery, Michael and Noemi Neidorff Art Gallery, Presa House, K Space Contemporary, Art Center of Corpus Christi, McNay Art Museum, Rockport Center for the Arts, South Side Living + Maker Spaces, San Antonio Museum of Art, Echo Gallery, Culture Commons Gallery
 
 ## Dallas
 
