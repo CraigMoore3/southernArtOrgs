@@ -45,7 +45,11 @@ Artpace San Antonio, Bismark Studios Contemporary, Ruby City, Sala Diaz, AnArte 
 
 ## Austin
 
+The Contemporary Austin - Jones Center, Blanton Museum of Art, UT Austin Visual Arts Center, West Chelsea Contemporary, Big Medium Gallery, SAGE Studio at Canopy, Cloud Tree Studios, Art Galleries at Black Studies, MASS Gallery, Wally Workman Gallery, Austin Central Library Gallery, Austin Art Garage, grayDUCK Gallery, Wonderspaces
+
 ## Fort Worth
+
+The Art Galleries at TCU, William Campbell Gallery, Moudy Art Gallery, Modern Art Museum of Fort Worth, Artspace111, Cufflink Art, Love Texas Art, Bee Street Gallery, Gallery 440, Fort Works Art, Milan Gallery, Elm Street Studio, Dow Art Galleries
 
 Hello,
 
