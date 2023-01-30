@@ -6,10 +6,31 @@
 
 ## Houston
 
-MoFA Houston (Nancy Rich Kinder Building), Contemporary Arts Museum Houston, The Menil Collection (Dan Flavin, Cy Twombly, Byzantine Fresco), Houston Center for Contemporary Craft, Rienzi MoFA Houston, Seismique, Blaffer Art Museu, Lawndale Art Center, Rothko Chapel, Color Factory, Pearl Fincher MoFA, McClain Gallery, Station Museuem of Contemporary Art, Deborah Colton Gallery, Glade Cultural Center Gallery
+MoFA Houston, Contemporary Arts Museum Houston, The Menil Collection, Houston Center for Contemporary Craft, Seismique, Blaffer Art Museu, Lawndale Art Center, Rothko Chapel, Color Factory, Pearl Fincher MoFA, McClain Gallery, Station Museuem of Contemporary Art, Deborah Colton Gallery, Glade Cultural Center Gallery
 
 * The Menil Collection - non profit
   (713) 525 9435  info@menil.org
+
+* The Museum of Fine Arts, Houston
+  (713) 639 7590  programs@mfah.org
+  possible internships interns@mfah.org
+  curatorial fellowship to open-fall23
+
+* Houston Center for Contemporary Craft
+  (713) 529 4848
+  Open call for residency
+
+* Lawndale Art Center
+  (713) 528 5858 askus@lawndaleartcenter.org
+  Open call residency soon
+
+* McClain Gallery
+  (713) 520 9988 info@mcclaingallery.com
+  TO CALL
+
+* Deeborah Colton Gallery
+  (713) 869 5151 info@deborahcoltongallery.com
+  TO CALL
 
 ## San Antonio
 
