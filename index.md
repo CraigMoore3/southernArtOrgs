@@ -36,7 +36,16 @@ MoFA Houston, Contemporary Arts Museum Houston, The Menil Collection, Houston Ce
 
 * The Contemporary at Blue Star
 
-Artpace San Antonio, Bismark Studios Contemporary, Ruby City, Sala Diaz, AnArte Gallery, High Wire Arts, Gravelmouth, San Antonio Art League, Ruiz-Healy Art, Briscoe Western Art Museum, Semmes Gallery, Michael and Noemi Neidorff Art Gallery, Presa House, K Space Contemporary, Art Center of Corpus Christi, McNay Art Museum, Rockport Center for the Arts, South Side Living + Maker Spaces, San Antonio Museum of Art, Echo Gallery, Culture Commons Gallery
+Artpace San Antonio, Bismark Studios Contemporary, Ruby City, Sala Diaz, AnArte Gallery, High Wire Arts, Gravelmouth, San Antonio Art League, Ruiz-Healy Art, Briscoe Western Art Museum, Semmes Gallery, Michael and Noemi Neidorff Art Gallery, Presa House, K Space Contemporary, Art Center of Corpus Christi, McNay Art Museum, South Side Living + Maker Spaces, San Antonio Museum of Art, Echo Gallery, Culture Commons Gallery
+
+* Artpace San Antonio
+  Residency open calls (summer of 22 for 24 residency)
+
+* Sala Diaz
+  (210) 275 4903 saladiaz517@gmail.com
+
+* Presa House
+  Look into
 
 ## Dallas
 
@@ -66,7 +75,7 @@ Artpace San Antonio, Bismark Studios Contemporary, Ruby City, Sala Diaz, AnArte 
 
 ## Austin
 
-The Contemporary Austin - Jones Center, Blanton Museum of Art, UT Austin Visual Arts Center, West Chelsea Contemporary, Big Medium Gallery, SAGE Studio at Canopy, Cloud Tree Studios, Art Galleries at Black Studies, MASS Gallery, Wally Workman Gallery, Austin Central Library Gallery, Austin Art Garage, grayDUCK Gallery, Wonderspaces
+Rockport Center for the Arts, The Contemporary Austin - Jones Center, Blanton Museum of Art, UT Austin Visual Arts Center, West Chelsea Contemporary, Big Medium Gallery, SAGE Studio at Canopy, Cloud Tree Studios, Art Galleries at Black Studies, MASS Gallery, Wally Workman Gallery, Austin Central Library Gallery, Austin Art Garage, grayDUCK Gallery, Wonderspaces
 
 ## Fort Worth
 
