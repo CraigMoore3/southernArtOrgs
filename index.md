@@ -81,6 +81,8 @@ Rockport Center for the Arts, The Contemporary Austin - Jones Center, Blanton Mu
 
 The Art Galleries at TCU, William Campbell Gallery, Moudy Art Gallery, Modern Art Museum of Fort Worth, Artspace111, Cufflink Art, Love Texas Art, Bee Street Gallery, Gallery 440, Fort Works Art, Milan Gallery, Elm Street Studio, Dow Art Galleries
 
+[https://www.arts.texas.gov/jobs-opportunities/opportunities/]
+
 Hello,
 
 My name is Craig Moore, I'm an undergraduate Fine Arts Student at Florida State University working with the Expanded Media Lab. I'm reaching out to ask about any current or future plans **SITE131** has for hosting open-calls for artist submissions.
